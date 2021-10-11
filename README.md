@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Yulera
+- 👀 I’m interested in psycology, sourcing, Engish & Spanish languages
+- 🌱 I’m currently learning a nuances of sourcing
+- 💞️ I’m looking to collaborate with python & Java developers :)
+- 📫 How to reach me: skype: live:.cid.f009d6a269dce1d1  \  linkedIn: https://www.linkedin.com/in/yulera/ \ email: yuliana.paslavska@dataart.com
